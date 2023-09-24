@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **me.amanvishwakarma@gmail.com**
 
-- 📄 Know about my experiences [-](-)
+- 📄 Know about my experiences **https://linkedin.com/in/amanvishwakarma**
 
 - ⚡ Fun fact **-**
 
